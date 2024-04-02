@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Asthadixit1716
-- 👀 I’m interested in developing.
+- 👀 I'm pursuing Bachelor's Degree.
 - 🌱 I’m currently learning Full Stack Web Developing.
 - 💞️ I’m looking to collaborate on exciting projects.
 - 📫 How to reach me asthadixitrkm@gmail.com.
