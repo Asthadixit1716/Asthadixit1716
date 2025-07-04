@@ -51,7 +51,7 @@
 ### 📫 Get in Touch
 
 - 📧 Email: [dixitastha201@gmail.com](mailto:dixitastha201@gmail.com)
-- 💼 LinkedIn: [linkedin.com/in/astha-dixit-38500727b](https://www.linkedin.com/in/astha-dixit-38500727b)
+- 💼 LinkedIn: [linkedin.com/in/asthadixitrkm](https://www.linkedin.com/in/asthadixitrkm)
 - 🐙 GitHub: [github.com/Asthadixit1716](https://github.com/Asthadixit1716)
 
 ---
