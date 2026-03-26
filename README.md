@@ -50,7 +50,7 @@
 
 ### 📫 Get in Touch
 
-- 📧 Email: [dixitastha201@gmail.com](mailto:dixitastha201@gmail.com)
+- 📧 Email: [asthadixitrkm@gmail.com](mailto:asthadixitrkm@gmail.com)
 - 💼 LinkedIn: [linkedin.com/in/asthadixitrkm](https://www.linkedin.com/in/asthadixitrkm)
 - 🐙 GitHub: [github.com/Asthadixit1716](https://github.com/Asthadixit1716)
 
